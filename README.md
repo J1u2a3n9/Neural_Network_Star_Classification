@@ -1,1 +1,1 @@
-# Seventh-Practice-IS
+# Seventh Practice IS
